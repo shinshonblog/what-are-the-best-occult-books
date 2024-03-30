@@ -1,14 +1,14 @@
 I will suggest you 5 books to study occult in Deapth.
 
-1. The Vampire Codex" by Michelle Belanger : https://amzn.to/3TFEp0F
+1. The Vampire Codex" by Michelle Belanger : [https://amzn.to/3TFEp0F](https://www.facebook.com/shalinitrendsxp/posts/pfbid0jeHVzdYiH6bWfWRHeZ5zF4Z2VvS4ro9vkktDNB4YXnitEJwwZP4WCc1aPxTsZAmTl?__cft__[0]=AZXzOoKMmekcrybV2SboocOuC2fuxHsNPrbu8v2abFTYXeLrYAs5FSw1BnphYsWPGvO-sS1IuW2w1bt2bw-C_gVSwIlYzg1yPcoaCOYNVXKHJ27KYCOXW1GXs_GinsKypZQ&__tn__=%2CO%2CP-R)
 
-2. The Psychic Vampire Codex : https://amzn.to/3vBkV5l
+2. The Psychic Vampire Codex : [https://amzn.to/3vBkV5l](https://www.facebook.com/shalinitrendsxp/posts/pfbid0jeHVzdYiH6bWfWRHeZ5zF4Z2VvS4ro9vkktDNB4YXnitEJwwZP4WCc1aPxTsZAmTl?__cft__[0]=AZXzOoKMmekcrybV2SboocOuC2fuxHsNPrbu8v2abFTYXeLrYAs5FSw1BnphYsWPGvO-sS1IuW2w1bt2bw-C_gVSwIlYzg1yPcoaCOYNVXKHJ27KYCOXW1GXs_GinsKypZQ&__tn__=%2CO%2CP-R)
 
-3. Vampyre Magick : https://amzn.to/3VEeAkn
+3. Vampyre Magick : [https://amzn.to/3VEeAkn](https://www.facebook.com/shalinitrendsxp/posts/pfbid0jeHVzdYiH6bWfWRHeZ5zF4Z2VvS4ro9vkktDNB4YXnitEJwwZP4WCc1aPxTsZAmTl?__cft__[0]=AZXzOoKMmekcrybV2SboocOuC2fuxHsNPrbu8v2abFTYXeLrYAs5FSw1BnphYsWPGvO-sS1IuW2w1bt2bw-C_gVSwIlYzg1yPcoaCOYNVXKHJ27KYCOXW1GXs_GinsKypZQ&__tn__=%2CO%2CP-R)
 
-4. The Vampyre's Bible : https://amzn.to/4aeKmbV
+4. The Vampyre's Bible : [https://amzn.to/4aeKmbV](https://www.facebook.com/shalinitrendsxp/posts/pfbid0jeHVzdYiH6bWfWRHeZ5zF4Z2VvS4ro9vkktDNB4YXnitEJwwZP4WCc1aPxTsZAmTl?__cft__[0]=AZXzOoKMmekcrybV2SboocOuC2fuxHsNPrbu8v2abFTYXeLrYAs5FSw1BnphYsWPGvO-sS1IuW2w1bt2bw-C_gVSwIlYzg1yPcoaCOYNVXKHJ27KYCOXW1GXs_GinsKypZQ&__tn__=%2CO%2CP-R)
 
-5. Vampires: A Field Guide to the Creatures That Stalk the Night" by Bob Curran : https://amzn.to/4a9DY5M4
+5. Vampires: A Field Guide to the Creatures That Stalk the Night" by Bob Curran : [https://amzn.to/4a9DY5M4](https://www.facebook.com/shalinitrendsxp/posts/pfbid0jeHVzdYiH6bWfWRHeZ5zF4Z2VvS4ro9vkktDNB4YXnitEJwwZP4WCc1aPxTsZAmTl?__cft__[0]=AZXzOoKMmekcrybV2SboocOuC2fuxHsNPrbu8v2abFTYXeLrYAs5FSw1BnphYsWPGvO-sS1IuW2w1bt2bw-C_gVSwIlYzg1yPcoaCOYNVXKHJ27KYCOXW1GXs_GinsKypZQ&__tn__=%2CO%2CP-R)
 
 
 "The Vampire Codex" by Michelle Belanger: This book explores the modern vampire community and their beliefs, practices, and rituals. Belanger delves into the metaphysical aspects of vampirism, including energy work, psychic abilities, and spirituality. ()
